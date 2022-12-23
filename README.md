@@ -6,3 +6,5 @@ Discord : https://discord.gg/s4JtayEa8C
 
 made for this phone : https://github.com/Renewed-Scripts/qb-phone
 
+preview : https://streamable.com/z123f0
+
